@@ -1,0 +1,2 @@
+# registon
+samarqand haqida
